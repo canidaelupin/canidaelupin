@@ -10,7 +10,7 @@
   feel free to whisper me any time .... i have no dni idc what you're into unless you're 
   actually weird but like whatever - i promise i'm not this dry i just Gen. have no idea 
   what else to put here LMFOAOAOAO Okay anyways ya bye 
-
+<br><br>
   [spotify](https://open.spotify.com/user/3fspx15jtnuk3c3y67fpo6erb?si=5d9efc3349744359)
 </div>
 
